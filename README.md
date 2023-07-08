@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @EMMANUELALOBA
 - 👀 I’m interested in sports.tech,games,finance,and crypto
-- 🌱 I’m currently learning harvard university
+- 🌱 I’m currently learning..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me emj2284@gmail.com
 
