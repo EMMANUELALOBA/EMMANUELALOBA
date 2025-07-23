@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @JAMESWICK
+- 👋 Hi, I’m BELIEVER
 - 👀 I’m interested in sports.tech,games,finance,and crypto
-- 🌱 I am an Ageic grad..
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I am an Agric grad..
+- 💞️ I’m looking to collaborate on crypto projects.
 - 📫 How to reach me emj2284@gmail.com
 
 <!---
